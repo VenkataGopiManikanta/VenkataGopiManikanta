@@ -8,6 +8,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ... AWS
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... [Instagram] (https://www.instagram.com/venkatagopivarikuti/)
-- 😄 Pronouns: ... He/Him
+- 😄 Pronouns: ... He
 - ⚡ Fun fact: Humans are the Only Animals That Enjoy Spicy Foods
 -->
